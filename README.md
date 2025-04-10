@@ -6,3 +6,5 @@
 지금 시간은 5시 10분전입니다.
 
 MBTI는 ISTJ입니다.
+
+Good morning😁😁
